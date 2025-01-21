@@ -1,0 +1,1 @@
+Salve, io sono una macchina progettata per eseguire un ordine, vivere... o sopravvivere?
